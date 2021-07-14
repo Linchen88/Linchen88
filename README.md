@@ -1,4 +1,4 @@
-- 👋 Hi, I’m 林辰
+- 👋 Hi, I’m Linchen
 - 👀 I'm very interested in Internet technology
 - 🌱 If you are like-minded as me, we can communicate and study together
 - 💞️ I hope to meet more like-minded people in the network
